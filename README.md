@@ -9,8 +9,7 @@
            <p align="center">     
 semi-active, i only play to chat with a few friends. <br>
 c+h enc, w2i at all times. i love my friends<br>
-ponytown chronically online central <br>               
-<br>
+ponytown chronically online central <br>
                <a href="https://rentry.co/sunoftheria"> <img src= "https://i.postimg.cc/BZrDngXK/IMG-1575.png" style="width: 15%; height: auto;"> </a>
 <a href="https://medkit.atabook.org"> <img src="https://i.postimg.cc/sD5WQhh1/IMG-1576.png" style="width: 15%; height: auto;"> </a>
 <a href="https://rentry.co/shadow-peach"> <img src= "https://i.postimg.cc/zDsWGjVC/IMG-1577.png" style="width: 15%; height: auto;"> </a>
