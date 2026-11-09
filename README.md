@@ -26,7 +26,7 @@ sign my 新book <br>
 usually @ the phighting/mc area <br>
 i only play this game for my friends! <br>
 roblox players <i>iwec</i>, or dni altogether <br>
-subkit fans int though lowkey where u guys at
+<img src="https://file.garden/ZrgE6xyrrgxh47YJ/subkit.webp" height="300" align="center" alt="hey guys" title="i drew this ! >_<"></>
           </p>
     </td>
                
